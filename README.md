@@ -1,0 +1,1 @@
+A computer science, programmar and graphics design also an examination officer at Nurture Learning Academy Ilorin, Kwara state. I am native of Ilorin Kwara State. plan to be a perfect Engineer
